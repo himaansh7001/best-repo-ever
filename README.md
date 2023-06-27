@@ -1,2 +1,2 @@
 # best-repo-ever
-Hello theere!!! My name is Himanshu.
+Hello there!!! My name is Himanshu.
